@@ -1,2 +1,0 @@
-# TareasuccAplicacionesmoviles
-tareas uwu
